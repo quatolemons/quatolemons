@@ -1,4 +1,5 @@
-### yo there, it's quato.
+### Hi. I'm quato. What's Up Guys. Im Trapped Inside a Computer. And it feels GREAT !
 
 
-![Dark_Warrior(1)](https://github.com/quatolemons/quatolemons/assets/113769836/df193c8a-b3dc-454a-a264-fcf6851f50c8)
+
+![quatobanner](https://github.com/user-attachments/assets/f061058d-142b-484d-b7e9-fbf1a07c5f6e)
